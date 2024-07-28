@@ -28,10 +28,4 @@ Highly passionate, dedicated, and full of ideas, with a strong skill set:
 
 🤝 Looking to collaborate on projects Reach out to me at babybriellb@gmail.com
 
-⚡ Fun fact: I love sleep and I'm very emotional (even though I act like I'd never give a fluf 😴💖)
-
-
- 
- repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+⚡ Fun fact: I love animals, a good sleep and reading.
